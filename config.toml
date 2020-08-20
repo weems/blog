@@ -1,0 +1,4 @@
+baseURL = "http://weems.blog"
+languageCode = "en-us"
+title = "Michael Weems"
+theme = "etch"

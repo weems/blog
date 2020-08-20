@@ -2,3 +2,9 @@ baseURL = "http://weems.blog"
 languageCode = "en-us"
 title = "Michael Weems"
 theme = "etch"
+
+[params]
+  description = "Your site description"
+  copyright = "Copyright © 2020 Michael Weems"
+  dark = "off"
+  highlight = true

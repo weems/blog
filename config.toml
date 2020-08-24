@@ -1,4 +1,4 @@
-baseURL = "http://weems.blog"
+baseURL = "https://weems.blog"
 languageCode = "en-us"
 title = "Michael Weems"
 theme = "etch"

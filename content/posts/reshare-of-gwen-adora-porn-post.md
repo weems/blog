@@ -1,5 +1,5 @@
 ---
-title: "Reshare of 'Why Billie Eilish’s Criticism of Porn Consumption is Harmful'"
+title: "Reshare of 'Why Billie Eilish’s Criticism of Porn Consumption is Harmful' by Gwen Adora"
 date: 2021-12-19T11:18:41-06:00
 draft: false
 ---

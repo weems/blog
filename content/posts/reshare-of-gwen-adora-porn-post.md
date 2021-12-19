@@ -12,35 +12,33 @@ December 14, 2021
 
 “Porn Addiction”, Adult Industry and Anti-Porn Movement Resources
 
-
-Porn consumption is not inherently bad.
+**Porn consumption is not inherently bad.**
 
 If you watch adult movies by yourself, that’s perfectly normal. If you watch spicy YouTube videos with your partner/s, what a great way to share your desires! If you watch indie films alone while in a relationship, that’s totally cool! If you pay for your media, there is nothing wrong with you!
 
 I’ve noticed a disturbing increase from leftist leaning people promoting anti-porn conversations recently. It makes me so incredibly sad that these people, who often proud themselves as allies to marginalized and SW communities, take what is often religious propaganda and spread it to their audiences. Billie Eilish being a most recent example as she spoke against pornography on the Howard Stern Show today. Anti-porn ideologies come from the mass issue of misinformation about the porn and sex industry, often pushed, intentionally or otherwise, by the mainstream media, and backed by religious organizations. Because of this, the average person will have an ill-informed view of what the porn industry entails. While I understand it’s easy to not have all the facts, listening to people within the industry should be prioritized in conversations about porn consumption, performer safety, allegations of abuse and other issues.
 
-Advocating for Porn Media Literacy
+**Advocating for Porn Media Literacy**
 Myself and other SW advocate for industry transparency and on-going issues more than anyone else. We advocate for media literacy skills in regards to porn consumption, which is a critical but often forgotten aspect to porn usage. For whatever media you are consuming it’s important to be having conversations with yourself, partners, or family (if you have children) about the types of imagery, emotions and curiosity that are represented. We know the cinematic movies we watch are entertainment and fictional. Through comprehensive and inclusive sex education, we can teach people the same is true for pornography. Porn literacy skills could impact a lot of consumers in a healthy way, but the anti-porn movement doesn’t want to teach comprehensive sex education – they want to shame people into believing their issues are purely because of their porn consumption.
 
-Porn consumption is NOT classified as a true addiction by the APA.
+**Porn consumption is NOT classified as a true addiction by the APA.**
 
 Another tactic anti-porn organizations use to bolster their cause is exaggerate and promote allegations of abuse and sex trafficking within the adult industry. They use this to further the idea that porn consumption is unethical, adding another layer of misinformation and shame towards porn consumers. Reality is, abuse in our industry isn’t as prominent as the media reports it to be. It’s just that our limited instances end up being amplified. We have Unions and industry standards that we have created to keep us safe, and our industry does not support sex trafficking.
 
-Anti-porn organizations harm marginalized workers
+**Anti-porn organizations harm marginalized workers**
 When people with anti-porn opinions voice their frustration about our industry, not only is it misleading, but it also harms multiple marginalized communities. Communities critics often claim they support in other areas of human rights. According to a Covid-19 survey 13% of all LGBTQ+ respondents worldwide reported engaging in in-person SW, and undoubtedly the numbers are much larger for online engagement. The numbers increase for Trans folks, and quadruple for Black and Black Multiracial trans individuals. SW are queer, Trans, Black and brown, fat, disabled and unhoused. You cannot truly support those communities while being anti-sex work.
 
 Painting the adult industry as bad, unethical and unhealthy emboldens anti-porn organizations to lobby for stricter laws and regulations. As a result, our governments make it harder for us to work and survive. This leads to losses of income, and an increase in violence and discrimination, as proven through implementing SESTA/FOSTA in the US. The laws implemented actually end up harming victims of crimes too. Considering anti-porn organizations have religious roots, it should not be surprising they are trying to rid of diverse sexuality online.
 
-Is “Porn Addiction” Real?
+**Is “Porn Addiction” Real?**
 Regardless of your own personal relationship with pornography, porn consumption is NOT classified as a true addiction by the APA. Excessive consumption can be an issue, just like weed or social media, but that doesn’t mean watching porn is inherently unhealthy. Issues the anti-porn movement blame porn for, like “taught sexual aggression”, sexual uninterest, erectile disfunction, “porn addiction” and unhealthy relationships are not proven to be connected to pornography usage.
 
 
-View this post on Instagram
 A post shared by Gwen Adora ⚡ (@gwenadoraxo)
 
 Below are resources and sources of journals, articles and professionals that contradict the anti-porn movements points about “porn addiction” and misinformation about the sex industry. Please note this is not by any means an exhausted list, but meant to be a jumping off point into research surrounding SW discrimination, porn addiction and the porn industry.
 
-Porn Consumption, Mental Health and Porn Industry Experts
+**Porn Consumption, Mental Health and Porn Industry Experts**
 Kate Sinclaire, a filmmaker/pornographer and media literacy advocate. https://twitter.com/MsKateSinclaire
 
 Gustavo Turner, a journalist in the adult industry who specializes in writing about/debunking anti-prn, anti-sex work organizations, and campaigns. https://twitter.com/GustavoTurnerX

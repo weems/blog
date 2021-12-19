@@ -4,7 +4,7 @@ date: 2021-12-19T11:16:41-06:00
 draft:true
 ---
 
-What follows is a re-posting of https://gwenadora.com/porn-consumption-porn-addiction-and-the-anti-porn-movement/ by @GwenAdora but FB is weird about SW Posted Web Content so resharing this way
+What follows is a re-posting of https://gwenadora.com/porn-consumption-porn-addiction-and-the-anti-porn-movement/ by [@GwenAdora](https://twitter.com/gwenadora) but FB is weird about SW Posted Web Content so resharing this way
 
 Why Billie Eilish’s Criticism of Porn Consumption is Harmful
 December 14, 2021

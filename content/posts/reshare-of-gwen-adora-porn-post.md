@@ -52,16 +52,27 @@ Noelle Perdue, porn historian and artist. https://www.instagram.com/all_day_brea
 Other people I suggest looking into/chatting with about SW rights, the anti-prn movement and related:
 
 https://twitter.com/MsOeming
+
 https://twitter.com/mikestabile
+
 https://twitter.com/DrSprankle
+
 https://twitter.com/thotscholar
+
 https://twitter.com/CathyReisenwitz
+
 https://twitter.com/samleecole
+
 https://twitter.com/DrHeatherBerg
+
 https://twitter.com/AshleyLatke
+
 https://twitter.com/PornStudies
+
 https://twitter.com/missmarymoody
-Porn Consumption, Porn Addiction and Mental Heath Research
+
+
+**Porn Consumption, Porn Addiction and Mental Heath Research**
 Perceptions of Sexual Images: Factors Influencing Responses to the Ubiquitous External Ejaculation – SpringerLink
 
 Who Seeks Aggression in Pornography? Findings from Interviews with Viewers – PubMed.gov
@@ -109,7 +120,7 @@ Erased: The impact of FOSTA-SESTA and the removal of Backpage on sex workers –
 
 Sex Workers Project
 
-Who’s Behind Anti-Porn Organizations?
+**Who’s Behind Anti-Porn Organizations?**
 It’s important to vet the organizations you get information from. Examine their values, double check their sources, and understand their biases and origins. Personally, I find it weird that suddenly left-leaning folks are believing information from organizations with religious roots.
 
 I’m an Oregon Sex Worker—and the Idea of Gov. Nick Kristof Scares the Hell Out of Me – TheDailyBeast

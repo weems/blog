@@ -1,3 +1,9 @@
+---
+title: "Reshare of 'Why Billie Eilish’s Criticism of Porn Consumption is Harmful'"
+date: 2021-12-19T11:18:41-06:00
+draft: false
+---
+
 What follows is a re-posting of https://gwenadora.com/porn-consumption-porn-addiction-and-the-anti-porn-movement/ by @GwenAdora but FB is weird about SW Posted Web Content so resharing this way
 
 Why Billie Eilish’s Criticism of Porn Consumption is Harmful

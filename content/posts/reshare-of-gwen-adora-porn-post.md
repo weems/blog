@@ -1,9 +1,8 @@
 ---
-title: "Reshare of Why Billie Eilish’s Criticism of Porn Consumption is Harmful by Gwen Adora"
-date:2021-12-19T11:16:41-06:00
-draft:true 
+title: "Reshare of Gwen Adora Porn Post"
+date: 2022-09-28T11:11:27-05:00
+draft: false
 ---
-
 What follows is a re-posting of https://gwenadora.com/porn-consumption-porn-addiction-and-the-anti-porn-movement/ by  [@GwenAdora](https://twitter.com/gwenadora) but FB is weird about SW Posted Web Content so resharing this way
 
 Why Billie Eilish’s Criticism of Porn Consumption is Harmful
@@ -154,3 +153,4 @@ https://twitter.com/mikestabile/status/1458502781594001411?t=9lNtUWOid4XrYVzd_NU
 https://twitter.com/mikestabile/status/1457858555357188099?t=Vtc1_DcC3226IBOoT555LA&s=19
 
 To conclude, I can’t express how important it is for allies, folks with platforms, and people in general to listen to communities directly involved in issues like this. You may consider porn a flippant joke, or maybe a casual piece of media, but there is a huge community of workers who are impacted by stigmas thrown by far right, religious groups, and even people we thought to be allies like fellow progressive folks. Stay educated, check your biases, and understand that if sex work is work, we’re dealing with a whole movement dedicated to abolishing marginalized workers.
+
